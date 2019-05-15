@@ -10,6 +10,8 @@ _Tips et conseils super utiles du père Nogret_
 
 - Deux tiers des entreprises qui recrutent des jeunes talent ont à "revoir leur copie". Un talent, c'est quelqu'un qui répond aux besoins de l'entreprise. 
 
+- Il ne faut pas jeter le béné avec l'eau du bain.
+
 - Il faut travailler son rayonnement, sa présence. Avec le talent, ça fait pas tout, mais ça facilite.
 
 - Ne jamais rentrer dans le jeu de quelqu'un qui se victimise : ça n'apporte jamais rien de bon. Le prendre plutôt à la rigolade, se foutre de lui.
