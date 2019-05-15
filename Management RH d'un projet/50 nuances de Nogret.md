@@ -4,6 +4,8 @@
 
 _Tips et conseils super utiles du père Nogret_
 
+- Le management directif c'est du management "à la culotte".
+
 - Lorsqu'on négocie, ne jamais amener au point "C'est ça ou rien", car le risque est pris que l'interlocuteur réponde "rien" >> il faut se débrouiller pour qu'il ne puisse répondre que "oui".
 
 - Se méfier des X (génération) : ils ne sont pas fiables. Ils ne pensent qu'à eux et leurs objectifs : auto-centrés.
